@@ -1,1 +1,1 @@
-![Image of 'We can do it'](https://octodex.github.com/images/mona-the-rivetertocat.png)
+![Image of 'myself'](https://avatars.githubusercontent.com/u/76530073?v=4)
